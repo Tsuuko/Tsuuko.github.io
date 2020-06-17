@@ -2,4 +2,4 @@
 
 にゃーん
 
-https://Tsuuko4512.github.io
+https://Tsuuko.github.io
